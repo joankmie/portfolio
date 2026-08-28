@@ -106,7 +106,6 @@ Here is what I did in those places:
 - 🏫 Went to Fisher's Landing Elementary School in Vancouver, Washington
 - 🚗 Moved to San Diego when I was in kindergarten
 - 🏫 Went to Turtleback Elementary School, and Monterey Ridge Elementary School in San Diego
-- 🏫 Oak Valley Middle School, promoted 2025 (in San Diego)
 - 🏫 Currently in Del Norte High school, will graduate in 2029
 - 🎾 Playing 2 years of JV tennis, team captain 1 year at Del Norte
 - ✈️ I've visited South Korea 3 times to visit family
